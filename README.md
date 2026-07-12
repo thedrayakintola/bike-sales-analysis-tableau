@@ -62,10 +62,7 @@ Sales Analytics
 Geographic Analysis
 Dashboard Design
 
-
-
 Author
 Ayooluwa Akintola (PhD)
-
 LinkedIn:
-(link)
+www.linkedin.com/in/ayooluwa-akintola-phd-pmp®-miaeng-43a4389a
